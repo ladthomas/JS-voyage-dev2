@@ -1,4 +1,4 @@
-# [Dans ma valise 🧳]
+# Dans ma valise 🧳
 
 ## À propos
 
